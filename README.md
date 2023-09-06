@@ -2,7 +2,7 @@
 - 👀 I’m interested in tech stuffs..
 - 🌱 I’m currently learning python and MySQL and Ethical Hacking...
 - 💞️ I’m looking to collaborate on anything new and helpful for society..
-- 📫 Insta Id :- piyush_0723_
+- 📫 Instagram ID :- piyush_0723_
       Telegram ID :- @Star_Stark07
 
 <!---
