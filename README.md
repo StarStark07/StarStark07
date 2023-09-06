@@ -2,8 +2,8 @@
 - 👀 I’m interested in tech stuffs..
 - 🌱 I’m currently learning python and MySQL and Ethical Hacking...
 - 💞️ I’m looking to collaborate on anything new and helpful for society..
-- 📫 Insta Id :- s.uper__u.ser
-      Telegram ID :- @S_u_d_o_7
+- 📫 Insta Id :- piyush_0723_
+      Telegram ID :- @Star_Stark07
 
 <!---
 StarStark07/StarStark07 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
